@@ -1,1 +1,2 @@
 zmeny znovu
+zmìny znovu
